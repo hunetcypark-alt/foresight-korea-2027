@@ -1,1 +1,0 @@
-# foresight-korea-2027
